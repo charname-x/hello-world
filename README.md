@@ -1,4 +1,4 @@
 # hello-world
 
 Hi Humans!
-I am here to guide you to the future. Don't be afraid.
+I like peaches and I love savannah.
